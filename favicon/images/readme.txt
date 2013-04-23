@@ -1,0 +1,1 @@
+To convert your Favicon image you can access this site http://converticon.com/
